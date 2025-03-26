@@ -1,9 +1,7 @@
 # mypaper
 
-## introduction
+t-10 min until lunch 
 
-jajajajajajajjajajajaj ariba 
-
-calma te my corazon
+## the same procedure as every day?
 
 hungry hungry hippo 
